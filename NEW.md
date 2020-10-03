@@ -1,1 +1,0 @@
-ato mega proverka
